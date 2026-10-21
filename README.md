@@ -1,0 +1,1 @@
+# Meu_Dinheiro_no_Tempo_VSCode
